@@ -20,4 +20,4 @@
 
 如果你想要一个长期稳定的日本AV免费入口，请收藏本页。每日新片不断更新，高清免费在线播放，纯净体验，值得信赖。更多分类资源和专题片单也将持续上线，满足你更多观影需求。
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link](https://github.com/dd54045/36549 ）</span>
